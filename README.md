@@ -13,8 +13,8 @@
 </div><br/>
 
 
-Tenho 20 anos e estou em uma jornada contínua de busca por conhecimento e melhoria pessoal no dia a dia, com o objetivo de me tornar um programador melhor. Dedico-me a aprender novas habilidades, aperfeiçoar minhas técnicas e manter-me atualizado com as tendências e inovações na área de programação, acreditando que o esforço constante é fundamental para o sucesso profissional.
+Tenho 21 anos e estou em uma jornada contínua de busca por conhecimento e melhoria pessoal no dia a dia, com o objetivo de me tornar um programador melhor. Dedico-me a aprender novas habilidades, aperfeiçoar minhas técnicas e manter-me atualizado com as tendências e inovações na área de programação, acreditando que o esforço constante é fundamental para o sucesso profissional.
 
 
 
-I am 20 years old and on a continuous journey to seek knowledge and improve myself daily, aiming to become a better programmer. I am dedicated to learning new skills, refining my techniques, and staying updated with trends and innovations in the field of programming, believing that constant effort is key to professional success.
+I am 21 years old and on a continuous journey to seek knowledge and improve myself daily, aiming to become a better programmer. I am dedicated to learning new skills, refining my techniques, and staying updated with trends and innovations in the field of programming, believing that constant effort is key to professional success.
